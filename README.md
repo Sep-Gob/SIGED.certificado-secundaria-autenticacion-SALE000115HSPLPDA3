@@ -1,0 +1,2 @@
+# SIGED.certificado-secundaria-autenticacion-SALE000115HSPLPDA3
+SALE000115HSPLPDA3
